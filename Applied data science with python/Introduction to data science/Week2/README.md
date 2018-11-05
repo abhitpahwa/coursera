@@ -1,1 +1,1 @@
-Assignment for week 2.
+Week 2 study material and assignment.
